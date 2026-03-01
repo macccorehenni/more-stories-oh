@@ -34,4 +34,4 @@ Astrellia looked at the girl. "So it is."
 "So I can trust her, then. Good."
 I nodded. 
 "What is this magic that Creator is speaking of?"
-She directed 
+She directed Tali towards the 
