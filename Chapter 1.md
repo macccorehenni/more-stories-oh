@@ -39,4 +39,15 @@ She directed Tali towards the armoir in which I kept the most important trinket�
 I was aghast to see it broken.
 "Who had the gall to break my inkpot? _That_ is where all my magic is stored, in that fount where my magic pen gets dipped when I'm writing!" 
 
-I shook my girls, if only to emphasize my point. This was dreadful, really. The only reason I exist is that globular piece of glass. 
+I shook my girls, if only to emphasize my point. This was dreadful, really. The only reason I exist is that globular piece of glass. Of course I would discombobulate! But I quickly got my wits about me.
+
+"Astrellia!" I prompted. "Who have I allowed into this sacred orifice? If my memory serves me right… no one, correct?"
+Astrellia nodded.
+"As far as I know not, my dear."
+That is indeed odd… then _how_ did my magical conduit, the well–protected glass, become shattered so? 
+
+My stories— and their lives— depend on it.
+
+---
+I went for a walk to clear my head. Something was off here, and I must figure it out. But what, _exactly_, was the culprit intending to do? If they wanted to kill me, that would be easier outside my house. Perhaps they meant to warn me of some danger that was yet unseen. That could be the case, but why? What danger? And telling me would have been simpler, would it have not been? As I went around the corner, I heard a cry of "Help me!" Of course I rushed into action, not realizing that that would put me into fantastic amounts of danger. And would start off an adventure of equal fantasy, in both senses of the word.
+
