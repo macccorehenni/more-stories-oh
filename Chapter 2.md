@@ -65,4 +65,6 @@ Unfortunatly for my captors, my cape had been hastily discarded nearby me. A slo
 
 But before they entered I had already teleported. Luckily *and* unluckily for me, I only was able to teleport into downtown Pacifica.
 
-I walked about, looking for a pay phone to call Astrellia and tell her what had happened. I found no such thing though, to my chagrin. Then I heard I voice I remembered sweet, melodic
+I walked about, looking for a pay phone to call Astrellia and tell her what had happened. I found no such thing though, to my chagrin. Then I heard a voice I remembered— sweet, melodic, rich.
+
+"Anna?" I shouted out to the brunette goddess who had been instrumental in my worlds for essentialy 
