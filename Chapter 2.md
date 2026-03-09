@@ -24,7 +24,7 @@ But I had more pressing concerns to worry about.
 
 She could read my emotions as I walked in. Shit. That was _not_ good for me at all.
 
-"The hell happened? And who was that? You're upset, Astrellia."
+"The hell happened? And who was that? You're upset, Astrellia." Tali frowned at me.
 
 I tried, not at all successfully, to compose myself.
 
@@ -52,7 +52,6 @@ We got in the car that I reserved for true emergencies when public transit wasn'
 
 "That driver— almost doubt he's _actually_ Creator, since he cannot drive if his life depended on it. Which now that I think of it, his life does really depend on his and yours now. Where was I… ah yes. Just south of Pacifica. Good luck."
 
----
 
 # Creator
 
