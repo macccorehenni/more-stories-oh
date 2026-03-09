@@ -79,3 +79,6 @@ I went for a walk to clear my head. Something was off here, and I must figure it
 I then found a sack placed over my hands, and a method of restraint placed over my arms and legs. Either they knew me well, or they were through. I made a fuss, as one who seems to be caught in a kidnapping would do, to no avail. 
 
 Where they took me I didn't know. Only later once I had learned _who_ had taken me would I know— it was my mortal enemy who had taken me. 
+```booknav
+[[Chapter 2|Next]]
+```
