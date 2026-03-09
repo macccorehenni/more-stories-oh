@@ -1,0 +1,25 @@
+# Astrellia
+I had only noticed that Creator was missing when he did _not_ come back on time. He normally returned before sundown. I grew worried as his departure stretched into a longer strech of time. Only at nine, when the sun had long since gone, did panic set in. I swollowed it down, and called the police officer who I had befriended and often referred to on matters like these. I was especially worried _beacuse_ his inkpot— the place where he derived his magic— had broken.
+
+He was understandably miffed but concerned when he picked up my call. Poor guy must've had been sleeping, as his voice was even gruffer in both manner and attitude. 
+
+"Astrellia." There was a shuffle of papers, perhaps beacuse he _knew_ why I called. 
+
+"Have you—" I started, but poor Amall knew why I was calling, knew my script.
+
+"No, Creator has not turned up. However, I heard over the radio that a suspicious car driven by someone who wears the clothes that Creator is known for was spotted at around sixteen hundred."
+
+Four PM. That's about when Creator had stalked off, to "think". I knew that meant that he was processing something big. Which was understandable, really. His _inkpot_! That was the most important thing to him. 
+
+"Oh? From Nob Hill?" I tried to keep an even voice. 
+
+"Yep, right around the corner from the maison." 
+
+Damn. Could it be— no, no, I didn't want to think about it. 
+
+But I had more pressing concerns to worry about.
+
+---
+She could read my emotions as I walked in. Shit. That was _not_ good for me at all. 
+
+
