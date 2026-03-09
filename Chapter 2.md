@@ -42,4 +42,17 @@ I took the path most familiar to me through the fever dream that was the maison,
 
 "I'm used to it." 
 
-Her voice was familiar to me, but I could not pin _why_.
+Her voice was familiar to me, but I could not pin _why_. I have a really good memory for voices too, hence why I was selected to be the Creator's assistant. 
+
+Okay, okay, it's not the only reason why. But my gift— some may call it a magic power— was a benifit for the Creator. He has a _terrible_ memory, especially for people. I often remind him of appointments and accompany him to those that might rely on his leaky memory. 
+
+We got in the car that I reserved for true emergencies when public transit wasn't running or woud be inadequate. I redialed Amall, and asked for more news.
+"That driver— almost doubt he's _actually_ Creator, since he cannot drive if his life depended on it. Which now that I think of it, his life does really depend on his and yours now. Where was I… ah yes. Just south of Pacifica. Good luck."
+
+---
+# Creator
+My restraints were removed and my face covering disposed of. I was in a untidy, grunge–filled industrial building of some sorts. 
+
+It was small, overlooking the beach. My cape had been stripped off of my body, which was for the best. I went over to the door of the building. Alas, it was locked, which again, was for the best. I had to get very creative now. 
+
+Unfortunatly for my captors, my cape had been hastily discarded nearby me. A slothful guard sat on a chair next to it. My cape was mostly for show, but it also was my main point of attack. If he saw me attempting to filtch my cape, the torture would be abmysal. I mightn't see the next morning. Or had I?x
