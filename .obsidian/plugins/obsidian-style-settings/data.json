@@ -22,5 +22,9 @@
   "baseline-style@@anim-motion-baseline": "cubic-bezier(0.33, 1, 0.68, 1)",
   "baseline-style@@font-text-override": "Daddy time",
   "baseline-style@@h1-font": "Blex",
-  "baseline-style@@heading-spacing": "3rem"
+  "baseline-style@@heading-spacing": "3rem",
+  "baseline-style@@icon-stroke-modifier": 0.5,
+  "baseline-style@@radius-modifier": 1.5,
+  "baseline-style@@density-modifier": 0.75,
+  "baseline-style@@font-interface-override": "Blex"
 }

@@ -1,4 +1,5 @@
 {
   "showInlineTitle": false,
-  "mobilePullAction": "obsidian-another-quick-switcher:command-palette"
+  "mobilePullAction": "obsidian-another-quick-switcher:command-palette",
+  "showUnsupportedFiles": true
 }
