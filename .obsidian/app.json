@@ -1,5 +1,9 @@
 {
   "showInlineTitle": false,
-  "mobilePullAction": "obsidian-another-quick-switcher:command-palette",
-  "showUnsupportedFiles": true
+  "mobilePullAction": "obsidian-better-command-palette:open-better-commmand-palette",
+  "showUnsupportedFiles": true,
+  "mobileToolbarCommands": [
+    "obsidian-linter:lint-file",
+    "obsidian-git:stage-hunk"
+  ]
 }

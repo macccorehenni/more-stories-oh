@@ -1,0 +1,29 @@
+{
+  "useSnippets": false,
+  "compatSpf": false,
+  "showAll": false,
+  "snippets": [
+    {
+      "path": "/Fonts/",
+      "type": "string",
+      "selector": "",
+      "hiddenInNav": false,
+      "hiddenInBookmarks": false
+    },
+    {
+      "path": "Fonts",
+      "type": "folder",
+      "hiddenInNav": true,
+      "hiddenInBookmarks": false
+    },
+    {
+      "path": "Chapter 2.md~",
+      "type": "file",
+      "hiddenInNav": true,
+      "hiddenInBookmarks": false
+    }
+  ],
+  "alwaysHideInBookmarks": false,
+  "buttonInContextBookmark": false,
+  "obsidianExclude": false
+}

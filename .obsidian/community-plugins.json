@@ -4,7 +4,10 @@
   "nerdfont-icon-picker",
   "custom-font-loader",
   "another-sticky-headings",
-  "obsidian-another-quick-switcher",
   "booknav",
-  "obsidian-git"
+  "obsidian-git",
+  "obsidian-linter",
+  "obsidian-better-command-palette",
+  "explorer-hider",
+  "cmdr"
 ]
