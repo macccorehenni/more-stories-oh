@@ -55,4 +55,4 @@ My restraints were removed and my face covering disposed of. I was in a untidy, 
 
 It was small, overlooking the beach. My cape had been stripped off of my body, which was for the best. I went over to the door of the building. Alas, it was locked, which again, was for the best. I had to get very creative now. 
 
-Unfortunatly for my captors, my cape had been hastily discarded nearby me. A slothful guard sat on a chair next to it. My cape was mostly for show, but it also was my main point of attack. If he saw me attempting to filtch my cape, the torture would be abmysal. I mightn't see the next morning. Or had I?x
+Unfortunatly for my captors, my cape had been hastily discarded nearby me. A slothful guard sat on a chair next to it. My cape was mostly for show, but it also was my main point of attack. If he saw me attempting to filtch my cape, the torture would be abmysal. I mightn't see the next morning. Or had I? It was hard to tell. But if my stealth with the cape was excellent, then my stealth without was… passable. I snuck up behind a ornate jewel box and startled when the young man snored.
