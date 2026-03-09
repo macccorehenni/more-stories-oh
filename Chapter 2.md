@@ -22,4 +22,24 @@ But I had more pressing concerns to worry about.
 ---
 She could read my emotions as I walked in. Shit. That was _not_ good for me at all. 
 
+"The hell happened? And who was that? You're upset, Astrellia."
 
+I tried, not at all successfully, to compose myself.
+
+"He's missing."
+
+"Well, that's— _is_ that unusual?"
+
+"Not this late anyways. And to answer your other question, that was my cop friend, Amall, who often helps me with Creator."
+
+"Did he give you any leads?"
+
+"Nope. Well— actually… follow me."
+
+I took the path most familiar to me through the fever dream that was the maison, and Tali, to her credit, followed well. 
+
+"Most who I take out here, besides the Creator, get lost." I remarked to her once we emerged from the maison.
+
+"I'm used to it." 
+
+Her voice was familiar to me, but I could not pin _why_.
