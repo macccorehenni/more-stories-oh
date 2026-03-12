@@ -77,4 +77,4 @@ I was someone she knew.
 
 When she said that, something pulled on the strings of my heart. But I tamped it down, for there were many more important things.
 
-The guard who had called
+The guard who had called attention to my escape had began to round the corner. Panicked, I did the same exact thing that I had done to Tali earlier in the day— I tucked her under my cape and then began the process to
