@@ -1,6 +1,7 @@
 # Astrellia
 
-I had only noticed that Creator was missing when he did _not_ come back on time. He normally returned before sundown. I grew worried as his departure stretched into a longer strech of time. Only at nine, when the sun had long since gone, did panic set in. I swollowed it down, and called the police officer who I had befriended and often referred to on matters like these. I was especially worried _beacuse_ his inkpot— the place where he derived his magic— had broken.
+I had only noticed that Creator was missing when he did _not_ come 
+back on time. He normally returned before sundown. I grew worried as his departure stretched into a longer strech of time. Only at nine, when the sun had long since gone, did panic set in. I swollowed it down, and called the police officer who I had befriended and often referred to on matters like these. I was especially worried _beacuse_ his inkpot— the place where he derived his magic— had broken.
 
 He was understandably miffed but concerned when he picked up my call. Poor guy must've had been sleeping, as his voice was even gruffer in both manner and attitude.
 
@@ -48,10 +49,9 @@ Her voice was familiar to me, but I could not pin _why_. I have a really good me
 
 Okay, okay, it's not the only reason why. But my gift— some may call it a magic power— was a benifit for the Creator. He has a _terrible_ memory, especially for people. I often remind him of appointments and accompany him to those that might rely on his leaky memory.
 
-We got in the car that I reserved for true emergencies when public transit wasn't running or woud be inadequate. I redialed Amall, and asked for more news.
+We got in the car that I reserved for true emergencies when public transit wasn't running or would be inadequate. I redialed Amall, and asked for more news.
 
 "That driver— almost doubt he's _actually_ Creator, since he cannot drive if his life depended on it. Which now that I think of it, his life does really depend on his and yours now. Where was I… ah yes. Just south of Pacifica. Good luck."
-
 
 # Creator
 
@@ -67,4 +67,14 @@ But before they entered I had already teleported. Luckily *and* unluckily for me
 
 I walked about, looking for a pay phone to call Astrellia and tell her what had happened. I found no such thing though, to my chagrin. Then I heard a voice I remembered— sweet, melodic, rich.
 
-"Anna?" I shouted out to the brunette goddess who had been instrumental in my worlds for essentialy 
+"Anna?" I shouted out to the brunette goddess who had been instrumental in my worlds for essentialy _gifting_ them with power.
+
+"Who are you?" But then she took one look at my visage, and realized.
+
+I was someone she knew.
+
+"You… somehow pulled me from Ethryia, Tomas."
+
+When she said that, something pulled on the strings of my heart. But I tamped it down, for there were many more important things.
+
+The guard who had called

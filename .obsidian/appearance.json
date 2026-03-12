@@ -3,7 +3,7 @@
   "accentColor": "#2f4f4f",
   "autoFullScreen": false,
   "theme": "moonstone",
-  "baseFontSize": 16,
+  "baseFontSize": 20,
   "floatingNavigation": false,
   "enabledCssSnippets": []
 }
