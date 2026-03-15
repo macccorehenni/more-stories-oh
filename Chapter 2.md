@@ -75,6 +75,38 @@ I was someone she knew.
 
 "You… somehow pulled me from Ethryia, Tomas."
 
-When she said that, something pulled on the strings of my heart. But I tamped it down, for there were many more important things.
+When she said that, something pulled on the strings of my heart. But I tamped it down, for there were many more important things for me to apply.
 
-The guard who had called attention to my escape had began to round the corner. Panicked, I did the same exact thing that I had done to Tali earlier in the day— I tucked her under my cape and then began the process to
+The guard who had called attention to my escape had began to round the corner. Panicked, I did the same exact thing that I had done to Tali earlier in the day— I tucked er under my cape and then began the process to teleport her to the maison. But before I could, the guards who had held me captive in that horrid building on the beach had caught up with me. I had no option but to fight. I told Anna to step back behind me and wait. She did so. I pulled out my umbrella that I always had with me— sometimes visible, sometimes not. It was my version of concealing a weapon like a gun, but more elegant.
+I immediatly swung it at the first miscreant as a warning. He coninued to advance on me, and I swung at them again. They continued, and I swung at them again, harder, with intent to disarm them. They dodged, but then I realigned my attack with a simple flick of the cape, suprising them and knocking them off balance with a single application of the umbrella to the back of the knees. I hissed at Anna, "_Please_, my girl, take my hand."
+
+"Fine. Just promise me that if we— shit, look out!"
+A second guard was within striking distance of my knees, and was ready to strike when I saw a bright light, almost like a light bulb bursting, flash before my eyes. I counted my great deeds before I realized— _Anna's power was lightning_. I heard Tali cry out from somewhere nearby, and instinctivly ran for her voice. But I found a wall between her and I. _Shit_. My magic really was escaping me. 
+
+Then I saw a welcome sight and collapsed as Astrellia and Tali appeared at the end of the alley. They came and saved me.
+
+# Anna
+
+"What the hell is this, Tali?" It was all too… _fake_ feeling.
+
+Tali shrugged. "I'm still figuring this out myself."
+
+"Is this a mind-library?"
+
+"No, it's most definitly not. Though this Creator man— he _seems_ real, anyways."
+
+"Can I slap you?"
+
+Tali looked back at me from beside Astrellia's side. She looked creepily like me, with the same long, brown hair, the same ice blue eyes. Something was off, and that portal… 
+
+I tried not to think too much as we drove down a beautiful coastline. It almost reminded me of the Light Mythran coastline between the Parlamentarian and Averice. In fact the coastline was shaped the exact same. 
+
+"Tali, have you—"
+
+"It's exacty the same as northeast Popula's coastline, which if I trust Creator, was intentional."
+
+"Why, though, is some weirdo _copying_ the exact layout of our… I mean, my home?"
+
+"I've told you multiple times, I think five as of this echo, that he's the one who created us! Hence why he calls himself the 'Creator'!" 
+
+She grumpily folded her arms,a gesture that I knew to mean that the conversation was done. I copied her gesture, my thoughts spinning heavily. What did Tali truly mean by "he created us"? Like, did he… was he our father? No, that wasn't possible. I came from Celesteial Eisnore, Tali from Aste. Her parents were corrupted, mine killed in a car crash. Perhaps she meant that he somehow was complacent in our stories. That seemed like more of a 
