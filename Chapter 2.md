@@ -110,4 +110,37 @@ I tried not to think too much as we drove down a beautiful coastline. It almost 
 
 "I've told you multiple times, I think five as of this echo, that he's the one who created us! Hence why he calls himself the 'Creator'!"
 
-She grumpily folded her arms,a gesture that I knew to mean that the conversation was done. I copied her gesture, my thoughts spinning heavily. What did Tali truly mean by "he created us"? Like, did he… was he our father? No, that wasn't possible. I came from Celesteial Eisnore, Tali from Aste. Her parents were corrupted, mine killed in a car crash. Perhaps she meant that he somehow was complacent in our stories. That seemed like more of a stretch, considering that 
+She grumpily folded her arms,a gesture that I knew to mean that the conversation was done. I copied her gesture, my thoughts spinning heavily. What did Tali truly mean by "he created us"? Like, did he… was he our father? No, that wasn't possible. I came from Celesteial Eisnore, Tali from Aste. Her parents were corrupted, mine killed in a car crash. Perhaps she meant that he somehow was complacent in our stories. That seemed like more of a stretch, considering that he was seemingly a somewhat normal guy, with significant work put on "normal". 
+
+Yet Tali seemed to trust him. And I guess that was enough for me. I sighed, still fighting my urge to jump out the window and run as far away from this unfamiliar place as I could.
+
+Every time I had to remind myself that I would not have met Celesteia if I had done that. I stuck with them.
+
+---
+I soon was awoken by the sound of the car coming to a abrupt stop. Tali grunted, obviously used to this behavior. The brunette carbon copy of me apologized for her terrible driving. This "Creator" guy seemed like he wouldn't know how to drive. His cape seemingly did all the transportation work for him.
+
+"I'm afraid I never got to introduce myself," she sauid.
+
+"I'm Astrellia. I help the Creator with his life, you know, appointments and stuffs like that." 
+
+I stepped forward. "Anna Ildren, though you probally figured that out as soon as… _Creator_ and I showed up."
+
+Astrellia nodded. I couldn't help but stare, as if I was staring into a mirror. I couldn't help but feel uncomfortable with who I was slowly coming to realize was probaly one of Creator's characters, though neither realized it. 
+
+If _I_ could believe it. 
+
+But I was slowly starting to realize— I was lost without _his_ help. No matter who he is— or who he purported to be— I had been the victim of a bad timeline heal. Portals, while much more stable than when Devian and team discovered their powers and the commercial power within, still were magic. And like all magic, it had a habit of breaking apart at the most inopportune times for one who used it. Tali and I were  stuck on this dimension, until I could find someone with the portal magic to make a new power to return to Ethyria. And this guy seemed to be the one who could help us get back home.
+
+# Creator
+
+"I must show you something, Anna."
+
+I observed her slow, reluctant trail, and reassured her, though I was far from sure myself, that everything would be okay. 
+
+I went to the armiore and opened iit to see my broken inkpot.
+
+"I understand that you still have your reservations about my origin's veracity, but… blast it, I _myself_ don't even remember half of it. All I know, is I don't belong. This… _inkpot_, if you deign to call it as such, was my whole identity. You see, it has begun leaking out into this world, the, quote on quote, "real world". As soon as the ink runs dry, my magic… will not work anymore."
+
+I struggled back tears and put on a brave simle.
+
+"I need help to figure who my attempted captors are before my ink dries out. Will you help me?"
