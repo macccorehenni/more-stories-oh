@@ -144,3 +144,7 @@ I went to the armiore and opened iit to see my broken inkpot.
 I struggled back tears and put on a brave simle.
 
 "I need help to figure who my attempted captors are before my ink dries out. Will you help me?"
+
+I saw the tension in Anna's hesitation. She wanted to accept, _to belong_. Yet she didn't believe me. I get it. Even for my worlds it seemed grandoise. Suddenly taking a portal to a world where no logic from one's own stood to be true. Where the rules seemed foreign when compared to the ones they were used to. I understood. After, something deep within my psyche told me I was the same =. I had no words to share with her in this moment but those I had already shared.
+
+After a few minutes of tense thouught (I was much the same, besides), Anna answered, with some degree of finality, "What do I need to do?"
