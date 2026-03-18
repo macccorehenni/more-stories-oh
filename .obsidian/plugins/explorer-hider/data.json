@@ -15,12 +15,6 @@
       "type": "folder",
       "hiddenInNav": true,
       "hiddenInBookmarks": false
-    },
-    {
-      "path": "Chapter 2.md~",
-      "type": "file",
-      "hiddenInNav": true,
-      "hiddenInBookmarks": false
     }
   ],
   "alwaysHideInBookmarks": false,
