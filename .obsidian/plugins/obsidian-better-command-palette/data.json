@@ -16,7 +16,9 @@
   "hotkeyStyle": "auto",
   "createNewFileMod": "Mod",
   "openInNewTabMod": "Shift",
-  "hiddenCommands": [],
+  "hiddenCommands": [
+    "obsidian-git:push"
+  ],
   "hiddenFiles": [],
   "hiddenTags": [],
   "fileTypeExclusion": []
