@@ -26,5 +26,6 @@
   "baseline-style@@icon-stroke-modifier": 0.5,
   "baseline-style@@radius-modifier": 1.5,
   "baseline-style@@density-modifier": 0.75,
-  "baseline-style@@font-interface-override": "Blex"
+  "baseline-style@@font-interface-override": "Blex",
+  "baseline-style@@font-monospace-override": "Daddy_Mono"
 }

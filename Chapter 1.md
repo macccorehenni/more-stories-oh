@@ -1,14 +1,14 @@
 # Creator
 
-I was riding the cable car from my home on Nob Hill to Downtown San Fransisco to attend to a appointment when I saw her. She was wearing her earmuffs with her diamond marks on them. She was arguing quite verbosly with a fare inspector. I knew instinctively that it was one of my children of the ink, Tali.
+I was riding the cable car from my home on Nob Hill to Downtown San Francisco to attend to an appointment when I saw her. She was wearing her earmuffs with her diamond marks on them. She was arguing quite verbosely with a fare inspector. I knew instinctively that it was one of my "children of the ink", Tali.
 
-I stood up, my cape flowing, and the fare inspector stilled. I am a well known figure, both for my creative, shall we say, inspirations, and my philanthropic deeds. Whether that knowledge is beacuse I am famous or beacuse I am infamous, I am not sure.
+I stood up, my cape flowing, and the fare inspector faltered. I am a well–known figure, both for my creative, shall we say, inspirations, and my philanthropic deeds. Whether that knowledge is because I am famous or because I am infamous, I am not sure.
 
 I am chiefly regarded for my magic tricks—illusions rather than incantations, all of them delightfully unmagical despite their reputation.
 
-But those tricks that aren't as seen, that involve the magic quill, or the cape, those are my bread and butter.
+But those tricks that are less seen, that involve the magic quill, or the cape, those are my true vocation.
 
-But that type of magic was slipping free from my body, and it left me shaken.
+That type of magic was slipping free from my body, and it left me shaken, my shoulders sagging.
 
 _Enough, Creator,_ I told myself. _That is your character, Creator. Save her._
 
@@ -16,15 +16,15 @@ I sidled up to the fare inspector and nodded.
 
 "Mr. Panelor?"
 
-"Cr… Creator!"
+"Cr… Creator!" He stood in front of me, no doubt awestruck that _I_ was addressing him.
 
 "She is mine."
 
 I winked as I said this, then tucked Tali under my cape. She began screaming.
 
-"Listen, Tali, my magic has somehow seeped its powers into my world. You, to put it neatly, girl, are fictional. A figment of my imagination. Of dubious nature to those who are not I. Please quiet."
+"Listen, Tali, my magic has somehow seeped its powers into my world. You, to put it neatly, girl, are fictional. A figment of my imagination. Of dubious nature to those other than myself. Please quiet."
 
-She did.
+She shrank into the cape and settled, still concerned, but subdued. The weight of several eyes bore down on me as the trolley trundled on the way down the street below us. I breathed a sigh of relief as I deboarded the trolley downtown, and continued upon my way.
 
 ---
 

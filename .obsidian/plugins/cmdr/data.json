@@ -16,13 +16,26 @@
       "icon": "lucide-a-arrow-down",
       "name": "Save current file",
       "mode": "any"
+    },
+    {
+      "id": "custom-selected-word-count:count-selected-words",
+      "icon": "lucide-spell-check-2",
+      "name": "count words",
+      "mode": "any"
     }
   ],
   "leftRibbon": [],
   "rightRibbon": [],
   "titleBar": [],
   "statusBar": [],
-  "pageHeader": [],
+  "pageHeader": [
+    {
+      "id": "app:toggle-right-sidebar",
+      "icon": "sidebar-right",
+      "name": "Toggle right sidebar",
+      "mode": "any"
+    }
+  ],
   "macros": [],
   "explorer": [],
   "hide": {

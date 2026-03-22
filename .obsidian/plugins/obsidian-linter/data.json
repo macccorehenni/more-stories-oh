@@ -279,8 +279,16 @@
   "displayLintOnFileChangeNotice": false,
   "settingsConvertedToConfigKeyValues": true,
   "additionalFileExtensions": [],
-  "foldersToIgnore": [],
-  "filesToIgnore": [],
+  "foldersToIgnore": [
+    "Realms of the Multiverse"
+  ],
+  "filesToIgnore": [
+    {
+      "match": "^Realms of the Multiverse/Danae\\.md$",
+      "flags": "",
+      "label": ""
+    }
+  ],
   "linterLocale": "system-default",
   "logLevel": "ERROR",
   "lintCommands": [],
